@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AaronWemple
 - 👀 I’m interested in devloping a new niche cryptocurrency and collaborative game app.
-- 🌱 I’m currently learning business.
+- 🌱 I’m currently learning business and counseling families.
 - 💞️ I’m looking to collaborate on software developments for information economic game and severance payment app.
 - 📫 How to reach me at www.parentx-youscribe.com 
 
